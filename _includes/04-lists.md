@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. buy baseball bat
+2. Go to high school baseball game
+3. profit
